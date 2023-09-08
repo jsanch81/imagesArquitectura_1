@@ -1,0 +1,1 @@
+# imagesArquitectura_1
